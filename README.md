@@ -18,7 +18,7 @@ ACADEMIC YEAR
 
 
 
-CHAPTER ONE
+CHAPTER ONE reviewed
 INTRODUCTION
 	Overview
 This chapter represent the background of the study, statement of problem under study, research objectives, research questions, research hypothesis, significance of the study as well as scope of study.
